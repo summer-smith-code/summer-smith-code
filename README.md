@@ -6,3 +6,5 @@
 
 * Check out my portfolio [here](https://docs.google.com/document/d/1vFO_saeCcpQ7Lyek330oXnOScunbF_WzLZEu6cLVhTw/edit?usp=sharing)
 * You can also find me on [Linkedin](https://www.linkedin.com/in/summer-smith-435887293/)
+* My [Itch Page](https://ashmaes.itch.io)
+
